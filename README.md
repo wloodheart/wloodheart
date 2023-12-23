@@ -1,6 +1,6 @@
 # Wlad is here 👋
 
-Hi, my name is Ulsdzislau Khartanovich
+Hi, my name is Uladzislau Khartanovich
 
 📭 **How to reach me**: [Telegram](https://t.me/wloodheart), [LinkedIn](https://www.linkedin.com/in/wloodheart/)
 
